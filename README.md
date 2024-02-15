@@ -7,3 +7,10 @@ I will destroy any marriage with any lie of your choice. Step 1. Women, buy a pu
 2. Love the Puppy more than your man, all day long, and in every moment.
 3. Repeat step 1.
 
+Marriage Statistics
+---
+All LIES.
+
+I could buy a wife right now for the low low low super low price of a woman on a homosexual planet full of men.
+
+Or, if you act real quick, I could just steal your wife if you are straight with it.
