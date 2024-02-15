@@ -14,3 +14,8 @@ All LIES.
 I could buy a wife right now for the low low low super low price of a woman on a homosexual planet full of men.
 
 Or, if you act real quick, I could just steal your wife if you are straight with it.
+
+50% of the Time its 50/50
+---
+All mariage data says its just a 50/50 flip of the coin. 
+> There is no evidence of any intelligence or culture.
